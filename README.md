@@ -1,1 +1,1 @@
-# patikabolumsonucal-smas-
+# patikabolumsonucalismasi
